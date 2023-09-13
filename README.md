@@ -4,7 +4,7 @@
 ☾Aqui você verá alguns projetos realizados por nós nas aulas de Pensamento computacional;
 
 
-✰Caso saiba de algo que possa nos ajudar em algum desses projetos, digam, por favor;
+✰Caso saiba de algo que possa me ajudar em algum desses projetos, digam, por favor;
 ![](https://media.tenor.com/_bdFLN61nDAAAAAC/inazuma-eleven-ina11.gif
 )
 
