@@ -1,4 +1,4 @@
-꧁𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕠𝕦𝕣 𝕡𝕣𝕠𝕗𝕚𝕝𝕖 🐝⚽🌠꧂
+꧁𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕠𝕦𝕣 𝕡𝕣𝕠𝕗𝕚𝕝𝕖 ☾🌠꧂
 
 
 ☾Aqui você verá alguns projetos realizados por nós nas aulas de Pensamento computacional;
